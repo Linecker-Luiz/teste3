@@ -16,6 +16,8 @@ GUIZÃO BRABO!!!       🔥     🔥
 1. PAZ
 2. AMOR
 3. FELICIDADE
+4. BELEZA
+5. SAGAcIDADE
 
 <h1> PAPAI CRIS
 
